@@ -16,7 +16,7 @@ The game is filled with intense action and battles as Naruto fights against powe
 As the game progresses, players will learn more about the importance of peace and the sacrifices that must be made in order to achieve it. They will also see the growth and development of Naruto and Sasuke as they mature and learn to control their emotions and desires.
 Ultimately, th,e game is a powerful and emotional journey that will have players fully immersed in the world of Naruto and the struggles of the characters. It is a game that is not only fun to play, but also thought-provoking and impactful, as it encourages players to consider the importance of peace and the sacrifices that must be made to achieve it.
 
-<h4>Link to the game :</h4>   https://bharathsaipadala.itch.io/civic-quest
+<h4>Link to the game : *https://bharathsaipadala.itch.io/civic-quest* </h4>
 
 ![Naruto_Sasuke1](https://user-images.githubusercontent.com/85835366/213672673-e8ab0b2c-1945-42e9-80c9-30d9cce4ead1.jpg)
 
